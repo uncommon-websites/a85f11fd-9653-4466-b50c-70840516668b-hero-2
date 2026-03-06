@@ -1,0 +1,2 @@
+# a85f11fd-9653-4466-b50c-70840516668b-hero-2
+Hero section variant 2 for a85f11fd-9653-4466-b50c-70840516668b
